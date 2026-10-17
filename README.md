@@ -6,11 +6,11 @@
 ---
 
 ## about me
-🪩pretty
+pretty
 </p>
-🍸smart
+smart
 </p>
-🫧funny
+funny
 </p>
 
 ## all your dreams will come true if you follow me on instagram  
